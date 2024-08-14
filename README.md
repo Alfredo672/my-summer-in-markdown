@@ -1,3 +1,3 @@
 # my-summer-in-markdown
 Alfredo Ortiz
-16 years old
+-16 years old
